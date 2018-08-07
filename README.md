@@ -1,0 +1,1 @@
+# Pool-of-stake-bounty-checks
